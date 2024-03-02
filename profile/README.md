@@ -1,4 +1,4 @@
-Sprawdź mój najnowszy raport ➡️ www.teleoperator.info 
+Sprawdź mój najnowszy raport ➡️ 2024.teleoperator.info 
 
 📢 Zapraszam wszystkich zainteresowanych branżą monitoringu 📷🔒 
 
